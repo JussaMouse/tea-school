@@ -14,6 +14,7 @@
 ### Gaiwan
 ![[Screenshot 2024-02-05 at 11.23.27 PM.jpg]](https://i.imgur.com/qedQp5q.png)
 gài wǎn / 蓋碗
+
 (a note on  nomenclature. i will often use these terms interchangeably because they all point to the thing doing the brewing: "gaiwan", "pot", "teapot", "brewing vessel". there are many more real names for all the various kinds but "pot" and "gaiwan" are what usually comes out of my mouth as the general term.)
 #### size: 
 75-150 mL

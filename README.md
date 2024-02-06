@@ -60,11 +60,11 @@ the saucer it comes with is optional. personally, i discard that part and just u
 
 gōngdàobēi / 公道杯 
 
-#### size: 
-200-300 mL
+#### size: 200-300 mL
 
-#### material: 
-porcelain or glazed clay or glass
+#### material: porcelain or glazed clay or glass
+
+#### cost: $10+
 
 it is the second tool in our standard gongfu tea kit. it is a necessary intermediary between the gaiwan and the teacups. one reason is that when the time comes to end the steep, you must dump the tea out as quickly as possible. the other reason, and origin of the name Fairness cup, is that the last drop to leave the pot at the end of a pour is the best part, and if you were decanting from the teapot directly into the teacups, you would, unfairly, have to choose which cup to give it to. but with the fairness cup it mixes with the other tea before being served.
 
